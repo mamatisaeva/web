@@ -7,3 +7,27 @@
  [отчеты о дефекте Cart/Order managment .xlsx](https://github.com/mamatisaeva/web/files/15378572/Cart.Order.managment.xlsx)  
 [тестовый прогон из QASE Cart/Order managment.pdf](https://github.com/mamatisaeva/web/files/15378575/QASE.Cart.Order.managment.pdf)  
 [ссылка на папку со всему файлами в google диск](https://drive.google.com/drive/folders/1IXh77PqLc8pIw91Bb2X-Ysb2md2eE4xr)
+
+
+
+https://github.com/mamatisaeva/web/assets/166529780/c0012f0c-f7f2-40f0-9804-7c34890c9c3d
+
+
+
+
+
+https://github.com/mamatisaeva/web/assets/166529780/909f1faa-225b-4152-a269-3c58fb593da3
+
+
+
+
+
+https://github.com/mamatisaeva/web/assets/166529780/3d454e2e-f297-459f-b5a4-67c319371c5e
+
+
+
+
+
+
+
+
